@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @meoww-hehe
 - 👀 I’m interested in showing others the creations I've made, or just goofing around :3
-- 🌱 I’m currently learning Python, VBS, Batch and Javascript!
+- 🌱 I’m currently learning Python, VBS, Batch and Javascript! I'm also a Virtual Pianist, so I might post sheets here!
 - 💞️ I’m looking to collaborate on ermm, not sure...
 - 📫 How to reach me Discord - hey_uhhh_88055
 - 😄 Pronouns: he/him/his
